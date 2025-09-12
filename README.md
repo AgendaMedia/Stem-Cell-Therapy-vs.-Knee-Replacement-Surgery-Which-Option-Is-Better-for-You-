@@ -12,26 +12,26 @@ Knee replacement, or knee arthroplasty, involves surgically removing a damaged k
 **Comparing the Two Options**
 **1. Effectiveness**
 
-Stem Cell Therapy: Studies indicate that stem cell injections can lead to modest improvements in pain and function for individuals with knee osteoarthritis. However, the long-term efficacy and ability to halt disease progression remain areas of ongoing research. 
+**Stem Cell Therapy:** Studies indicate that stem cell injections can lead to modest improvements in pain and function for individuals with knee osteoarthritis. However, the long-term efficacy and ability to halt disease progression remain areas of ongoing research. 
 
 
-Knee Replacement Surgery: This surgery has a high success rate, with many patients experiencing significant pain relief and improved mobility. However, the results can vary, and some may still experience discomfort or complications post-surgery. 
+**Knee Replacement Surgery:** This surgery has a high success rate, with many patients experiencing significant pain relief and improved mobility. However, the results can vary, and some may still experience discomfort or complications post-surgery. 
 Mass General Brigham
 
 **2. Recovery Time**
 
-Stem Cell Therapy: Recovery is relatively quick, with most patients resuming normal activities within a few days. There is minimal downtime, and the procedure is typically done on an outpatient basis. 
+**Stem Cell Therapy:** Recovery is relatively quick, with most patients resuming normal activities within a few days. There is minimal downtime, and the procedure is typically done on an outpatient basis. 
 
 
-Knee Replacement Surgery: Recovery is more prolonged, often requiring several weeks to months. Patients may need physical therapy and assistance during the initial recovery phase. 
+**Knee Replacement Surgery:** Recovery is more prolonged, often requiring several weeks to months. Patients may need physical therapy and assistance during the initial recovery phase. 
 
 
 **3. Risks and Complications**
 
-Stem Cell Therapy: Being a less invasive procedure, it carries fewer risks. Potential side effects include infection at the injection site or allergic reactions, but these are rare. 
+**Stem Cell Therapy:** Being a less invasive procedure, it carries fewer risks. Potential side effects include infection at the injection site or allergic reactions, but these are rare. 
 
 
-Knee Replacement Surgery: As a major surgery, it comes with risks such as infection, blood clots, nerve damage, and complications related to anesthesia. Additionally, the prosthetic implant may wear out over time, necessitating revision surgery. 
+**Knee Replacement Surgery:** As a major surgery, it comes with risks such as infection, blood clots, nerve damage, and complications related to anesthesia. Additionally, the prosthetic implant may wear out over time, necessitating revision surgery. 
 
 
 **4. Cost**
